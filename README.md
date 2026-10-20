@@ -8,7 +8,7 @@ https://app.airgradient.com/dashboard?view=standard
 (1) biomes (scale > 50m) 
 *	grassland 1-2 days - st Edmunds
 *	woodland 1 day * 2 times (Astrophysics Dept or Wandlebury park) 
-*	Cherry Hilton chalk pit (1 day) - ask for 
+*	Cherry Hilton chalk pit (1 day) - asked for permission
 *	*peatland/pure soil? - verify Eddington soil
 *	cropland (1 day)) 
 
